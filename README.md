@@ -11,4 +11,6 @@
 0000110089066xsp@aç.educacao.sp.gov.br
 @samuquinha_0dz9
 
-<script type="text/javascript" async src=
+
+
+https://media1.tenor.com/m/el-8kP9KwUAAAAAd/treatsbettr-fiel-torcida.gif
