@@ -11,4 +11,4 @@
 0000110089066xsp@aç.educacao.sp.gov.br
 @samuquinha_0dz9
 
-<script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<script type="text/javascript" async src=
